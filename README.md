@@ -1,6 +1,4 @@
-## Welcome to GitHub Pages
-
-edit to trigger?
+# Home
 
 You can use the [editor on GitHub](https://github.com/boturnbow/squashtown/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
