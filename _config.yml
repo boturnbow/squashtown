@@ -1,1 +1,8 @@
 theme: jekyll-theme-minimal
+
+title: SQUASHTOWN
+description: All things Squashtown!
+
+logo: https://pages-themes.github.io/minimal/assets/img/logo.png
+
+show_downloads: "false"
