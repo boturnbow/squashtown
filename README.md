@@ -1,4 +1,4 @@
-# Home
+# Yo Yo Yo!
 
 ## What in the Sam Hill is Squashtown?
 
@@ -10,27 +10,27 @@ You been in the bottom of the hole mucking all day? Well, it's time to get your 
 
 1. Put down that shovel.
 1. Crawl towards the light!
-2. Loosen your suspenders.
 3. Spit the grit out your mouth.
+4. Pick your poison.
 
 ### Tailings Tea (On the Rocks)
 
-- Ice cubes*
+- Ice*
 - And don't be stingy with the Mucker's Milk
 
-\* Use fresh-blasted ore instead for the original Four Georgian's flavor.
+\* Substitute fresh-blasted ore for the original Four Georgian's flavor.
 
 ### Fire in the Hole!
 
 - Hot coffee or cocoa
-- Generous glug-glug of Mucker's Milk
+- Generous glug, glug, glug of Mucker's Milk
 
 ### Sluice Juice
 
 - Ice
 - Root beer
-- Mmmmm mmmm Mucker's Milk
+- Pour that mmmmm mmmm Mucker's Milk
 
 ## The Squashtown Toast
 
-Clank cups with your muckers. Cup to table for muckers lost. **"SquashDOWN!"**
+Clank cups with your muckers. And cup to table for muckers lost. **"SquashDOWN!"**
