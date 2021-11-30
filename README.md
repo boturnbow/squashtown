@@ -2,6 +2,10 @@
 
 ## What in the Sam Hill is Squashtown?
 
+A golden opportunity squandered. Montana's oldest dad joke. And superior to Pumpkinville in every way.
+
+To hell with ~~Queen City of the Rockies~~, we want our [Squashtown](https://en.wikipedia.org/wiki/Helena,_Montana#Early_settlement_and_gold_rush)!
+
 ## How to Squarsh Your Thirst
 
 Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's time to get out of that mucking hole and get your **squarsh** on like it's 1864:
