@@ -3,6 +3,11 @@
 
 @import "{{ site.theme }}";
 
+body {
+  background-color: beige;
+  font: serif;
+}
+
 header p.view {
   display: none;
 }
