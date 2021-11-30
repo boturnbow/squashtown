@@ -35,7 +35,9 @@ Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's tim
 
 ## The Squashtown Toast
 
-Clank cups with your muckers. And cup to table for muckers lost. **"SquashDOWN!"**
+Clank cups with your muckers. And cup to table for muckers lost.
+
+**"SquashDOWN!"**
 
 ## Squash for Squash's Sake
 
