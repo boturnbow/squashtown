@@ -1,37 +1,36 @@
 # Home
 
-You can use the [editor on GitHub](https://github.com/boturnbow/squashtown/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+## What in the Sam Hill is Squashtown?
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+## How to Squarsh Your Thirst
 
-### Markdown
+Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!**
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+You been in the bottom of the hole mucking all day? Well, it's time to get your **squarsh** on like it's 1864:
 
-```markdown
-Syntax highlighted code block
+1. Put down that shovel.
+1. Crawl towards the light!
+2. Loosen your suspenders.
+3. Spit the grit out your mouth.
 
-# Header 1
-## Header 2
-### Header 3
+### Tailings Tea (On the Rocks)
 
-- Bulleted
-- List
+- Ice cubes*
+- And don't be stingy with the Mucker's Milk
 
-1. Numbered
-2. List
+\* Use fresh-blasted ore instead for the original Four Georgian's flavor.
 
-**Bold** and _Italic_ and `Code` text
+### Fire in the Hole!
 
-[Link](url) and ![Image](src)
-```
+- Hot coffee or cocoa
+- Generous glug-glug of Mucker's Milk
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
+### Sluice Juice
 
-### Jekyll Themes
+- Ice
+- Root beer
+- Mmmmm mmmm Mucker's Milk
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/boturnbow/squashtown/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+## The Squashtown Toast
 
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Clank cups with your muckers. Cup to table for muckers lost. **"SquashDOWN!"**
