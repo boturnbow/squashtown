@@ -4,7 +4,7 @@
 
 A golden opportunity squandered. Montana's oldest dad joke. And superior to Pumpkinville in every way.
 
-To hell with ~~Queen City of the Rockies~~, we want our [Squashtown](https://en.wikipedia.org/wiki/Helena,_Montana#Early_settlement_and_gold_rush)!
+To hell with ~~Queen City of the Rockies~~, we want our [**Squashtown**](https://en.wikipedia.org/wiki/Helena,_Montana#Early_settlement_and_gold_rush)!
 
 ## How to Squarsh Your Thirst
 
