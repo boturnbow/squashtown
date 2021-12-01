@@ -2,7 +2,7 @@
 
 ## What in the Sam Hill is Squashtown?
 
-A golden opportunity squandered. Montana's oldest dad joke - 1864! And superior to Pumpkinville in every way.
+A golden opportunity squandered. Montana's oldest dad joke &mdash; 1864! And superior to Pumpkinville in every way.
 
 To hell with ~~Queen City of the Rockies~~, we want our [Squashtown](https://en.wikipedia.org/wiki/Helena,_Montana#Early_settlement_and_gold_rush)!
 
@@ -12,7 +12,7 @@ Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's tim
 
 1. Put down that mucking shovel.
 1. Crawl towards the light.
-3. Spit the grit out your mouth.
+3. Spit the mucking grit out your mouth.
 4. Pick your poison and make that loudmouth soup!
 
 ### Tailings Tea / On the Rocks
