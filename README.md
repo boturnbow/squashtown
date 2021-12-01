@@ -31,7 +31,7 @@ Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's tim
 
 - Ice
 - Root beer
-- Pour that mmmmm mmmm Mucker's Milk
+- Dose with that mmmmm mmmm Mucker's Milk
 
 ## The Squashtown Toast
 
