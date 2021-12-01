@@ -11,7 +11,7 @@ To hell with ~~Queen City of the Rockies~~, we want our [Squashtown](https://en.
 Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's time to get out of that mucking hole and get your **squarsh** on like it's 1864:
 
 1. Put down that mucking shovel.
-1. Crawl towards the light!
+1. Crawl towards the light.
 3. Spit the grit out your mouth.
 4. Pick your poison and make that loudmouth soup!
 
