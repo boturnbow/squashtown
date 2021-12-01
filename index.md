@@ -17,10 +17,8 @@ Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's tim
 
 ### Tailings Tea (On the Rocks)
 
-- Ice*
+- Ice (or substitute fresh-blasted ore for that original Four Georgian's flavor)
 - And don't be stingy with the Mucker's Milk
-
-<small>\* Substitute fresh-blasted ore for that original Four Georgian's flavor.</small>
 
 ### Fire in the Hole!
 
