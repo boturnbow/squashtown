@@ -20,7 +20,7 @@ Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's tim
 - Ice*
 - And don't be stingy with the Mucker's Milk
 
-\* Substitute fresh-blasted ore for the original Four Georgian's flavor.
+\* Substitute fresh-blasted ore for that original Four Georgian's flavor.
 
 ### Fire in the Hole!
 
