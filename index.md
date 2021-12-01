@@ -6,11 +6,11 @@ A golden opportunity squandered. Montana's oldest dad joke. And superior to Pump
 
 To hell with ~~Queen City of the Rockies~~, we want our [Squashtown](https://en.wikipedia.org/wiki/Helena,_Montana#Early_settlement_and_gold_rush)!
 
-## How to Squarsh Your Thirst
+## Christmas in Squashtown /<br>How to Squarsh Your Thirst
 
 Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's time to get out of that mucking hole and get your **squarsh** on like it's 1864:
 
-1. Put down that shovel.
+1. Put down that mucking shovel.
 1. Crawl towards the light!
 3. Spit the grit out your mouth.
 4. Pick your poison and make that loudmouth soup!
@@ -33,7 +33,7 @@ Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's tim
 
 ## The Squashtown Toast
 
-Clank cups with your muckers. And cup to table for muckers lost.
+Clank cups with your muckers. Cup to table for muckers lost.
 
 **"SquashDOWN!"**
 
