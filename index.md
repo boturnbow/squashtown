@@ -13,7 +13,7 @@ Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's tim
 1. Put down that mucking shovel.
 1. Crawl towards the light.
 3. Spit the mucking grit out your mouth.
-4. Pick your poison and make that loudmouth soup!
+4. Pick your poison and make that **loudmouth soup**!
 
 ### Tailings Tea / On the Rocks
 
