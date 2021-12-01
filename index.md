@@ -13,14 +13,14 @@ Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's tim
 1. Put down that shovel.
 1. Crawl towards the light!
 3. Spit the grit out your mouth.
-4. Pick your poison.
+4. Pick your poison and make that loudmouth soup!
 
 ### Tailings Tea (On the Rocks)
 
 - Ice*
 - And don't be stingy with the Mucker's Milk
 
-\* Substitute fresh-blasted ore for that original Four Georgian's flavor.
+<small>\* Substitute fresh-blasted ore for that original Four Georgian's flavor.</small>
 
 ### Fire in the Hole!
 
