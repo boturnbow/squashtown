@@ -15,7 +15,7 @@ Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's tim
 3. Spit the grit out your mouth.
 4. Pick your poison and make that loudmouth soup!
 
-### Tailings Tea (On the Rocks)
+### Tailings Tea / On the Rocks
 
 - Ice (or substitute fresh-blasted ore for that original Four Georgian's flavor)
 - And don't be stingy with the Mucker's Milk
