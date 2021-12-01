@@ -2,7 +2,7 @@
 
 ## What in the Sam Hill is Squashtown?
 
-A golden opportunity squandered. Montana's oldest dad joke (1864!). And superior to Pumpkinville in every way.
+A golden opportunity squandered. Montana's oldest dad joke - 1864! And superior to Pumpkinville in every way.
 
 To hell with ~~Queen City of the Rockies~~, we want our [Squashtown](https://en.wikipedia.org/wiki/Helena,_Montana#Early_settlement_and_gold_rush)!
 
@@ -18,18 +18,18 @@ Were you blessed with a jug of Mucker's Milk? **Why you lucky mucker!** It's tim
 ### Tailings Tea / On the Rocks
 
 - Ice (or substitute fresh-blasted ore for that original Four Georgian's flavor)
-- And don't be stingy with the Mucker's Milk
+- Let flow the Mucker's Milk
 
 ### Fire in the Hole!
 
 - Hot coffee or cocoa
-- Generous glug, glug, glug of Mucker's Milk
+- Glug, glug, glug that Mucker's Milk
 
 ### Sluice Juice
 
 - Ice
 - Root beer
-- Dose with that mmmmm mmmm Mucker's Milk
+- Dose with mmmmm mmmm Mucker's Milk
 
 ## The Squashtown Toast
 
