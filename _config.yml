@@ -6,3 +6,6 @@ description: Guardian of the Gourd
 logo: /assets/images/guardian.png
 
 show_downloads: false
+
+plugins:
+  - jemoji
