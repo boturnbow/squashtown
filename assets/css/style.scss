@@ -4,6 +4,7 @@
 @import "{{ site.theme }}";
 
 body {
+  padding-top: 0;
   background-color: moccasin;
   color: #333;
   font-family: serif;
@@ -12,6 +13,10 @@ body {
 
 header h1, header p {
   text-align: center;
+}
+
+header h1 {
+    display: none;
 }
 
 header p.view {

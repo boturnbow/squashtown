@@ -2,7 +2,7 @@
 
 ## What in the Sam Hill is Squashtown?
 
-A golden opportunity squandered. Montana's oldest dad joke &mdash; 1864! And superior to Pumpkinville in every way.
+A golden opportunity squandered. Montana's oldest dad joke &mdash; 1864! Superior to Pumpkinville in every way. The beginning of a movement.
 
 To hell with ~~Queen City of the Rockies~~, we want our [Squashtown](https://en.wikipedia.org/wiki/Helena,_Montana#Early_settlement_and_gold_rush)!
 
@@ -40,5 +40,5 @@ Clank cups with your muckers. Cup to table for muckers lost.
 ## Squash for Squash's Sake
 
 > "Don't make no sense."
-> 
+>
 > [Jayne](https://www.youtube.com/watch?v=pI-fiGUjAPY) of [Jaynestown](https://en.wikipedia.org/wiki/Jaynestown)
