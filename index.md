@@ -2,7 +2,7 @@
 
 ## What in the Sam Hill is Squashtown?
 
-A golden opportunity squandered. Montana's oldest dad joke &mdash; 1864! Superior to Pumpkinville in every way. The beginning of a movement.
+A golden opportunity squandered. Montana's oldest dad joke &mdash; 1864! Superior to Pumpkinville in every way. The beginning of a movement. :eggplant:
 
 To hell with ~~Queen City of the Rockies~~, we want our [Squashtown](https://en.wikipedia.org/wiki/Helena,_Montana#Early_settlement_and_gold_rush)!
 
