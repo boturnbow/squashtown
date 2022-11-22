@@ -2,17 +2,20 @@
 
 ## What in the Sam Hill is Squashtown?
 
-A golden opportunity squandered. Montana's oldest dad joke &mdash; 1864! Superior to Pumpkinville in every way. The beginning of a movement. :eggplant:
+* A golden opportunity squandered.
+* Montana's oldest dad joke &mdash; 1864!
+* Superior to Pumpkinville in every way.
+* The beginning of a movement. :eggplant:
 
 To hell with ~~Queen City of the Rockies~~, we want our [Squashtown](https://en.wikipedia.org/wiki/Helena,_Montana#Early_settlement_and_gold_rush)!
 
 ## Just Tell Me Already!
 
-Well, on **October 30, 1864** - the day before Halloween (that's important!) - the citizens of Last Chance had a meeting to rename and organize their little burg. Maybe the name was depressing to them? Anywho. Of the 200 folks living here, seven got together and had what would at times be a cantakerous shouting match as Civil War rivalries reared up. Providing comic relief to all the hubbub, some goofy dads in the crowd proposed "Squashtown" and "Pumpkinville" as names for the town (Halloween time, remember). Unfortunately, the muddle-headed crowd settled on the name of Helena. And we now live with weak puns like "What the Helena?" and "Have a Helena Day".
+Well, on **October 30, 1864** - the day before Halloween (that's important!) - the citizens of Last Chance had a meeting to rename and organize their little burg. Maybe the name was depressing to them? Anywho. Of the 200 folks living here, seven got together and had what would at times be a cantakerous shouting match as Civil War rivalries reared up. Providing comic relief to all the hubbub, some **goofy dads** in the crowd proposed "Squashtown" and "Pumpkinville" as names for the town (Halloween time, remember). Oh the submlime and transporting humor of a dad joke! Unfortunately, the muddle-headed crowd settled on the name of Helena. And we now live with weak puns like "What the Helena?" and "Have a Helena Day".
 
 But ... just imagine the parallel universe that branched off that day where our fair city was named "Squashtown". And the amazing imagery and punnery possible!!! All while living in a Squasher's Paradise.
 
-As for Pumpkinvile - blech :vomiting_face:
+As for Pumpkinvile - blech :confounded:
 
 ## Christmas in Squashtown /<br>How to Squarsh Your Thirst
 
