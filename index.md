@@ -2,8 +2,8 @@
 
 ## What in the Sam Hill is Squashtown?
 
-* A golden opportunity squandered.
-* Montana's oldest dad joke &mdash; 1864!
+* A *golden* opportunity squandered.
+* Montana's oldest **dad joke** &mdash; 1864!
 * Superior to Pumpkinville in every way.
 * The beginning of a movement. :eggplant:
 
@@ -16,6 +16,10 @@ Well, on **October 30, 1864** - the day before Halloween (that's important!) - t
 But ... just imagine the parallel universe that branched off that day where our fair city was named "Squashtown". And the amazing imagery and punnery possible!!! All while living in a Squasher's Paradise.
 
 As for Pumpkinvile - blech :confounded:
+
+## Wanna Flap Your Yap?
+
+Collect, collate and conflagrate your praises and curses into that mail that goes by lightning and send off to the Sometimes Honorable Mayor of Squashtowm, Mr. Dick Schnitzel - mayor@squashtown.com.
 
 ## Christmas in Squashtown /<br>How to Squarsh Your Thirst
 
