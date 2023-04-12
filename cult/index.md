@@ -4,7 +4,7 @@ Materials from presentation to Helena Outdoor Club on April 26, 2002 - *Ultralig
 * [Presentation slides](https://www.icloud.com/keynote/01cxmsuvXJwZlLI6pYo9bpIig#Presentation) at iCloud.com
 * [Demonstration packing list](https://lighterpack.com/r/ldoi30) at lighterpack.com
 * [Bo's backpacking dinner recipes](bos-backpacking-recipes.pdf) (pdf) adapted from various sources
-* [Menu for my Colorado Trail trip](colorado-menu.pdf) (pdf) for an example of calories and weights for 12 days of food
+* [Menu for Colorado Trail trip](colorado-menu.pdf) (pdf) for an example of calories and weights for 12 days of food
 * [Recipes that I used from Backcountry Foodie](back-country-foodie-freebies.pdf) (pdf) - I joined her [site](https://backcountryfoodie.com/) for a bit and thought there was some great stuff!
 * [Recipes from Andrew Skurka](skurka-recipe-book.pdf) (pdf) - I used the Beans and Rice recipe.
 
